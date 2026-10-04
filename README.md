@@ -1,0 +1,1 @@
+Download the .html and double click it and you can see a statistical analysis of the Iron Dome in action..with thermal camera and it's impressive on the one part but really a not good situation after all.
